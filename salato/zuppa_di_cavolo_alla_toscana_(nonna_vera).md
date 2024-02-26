@@ -1,4 +1,4 @@
-## zuppa di cavolo alla toscana
+## zuppa di cavolo alla toscana ricetta della sig.ra Vera
 
 ### ingredienti (quantità per 4/5 persone abbondando):
 
